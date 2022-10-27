@@ -1,10 +1,9 @@
 hello kyle
 
-thgank you kyle for evrything
-you got remove from school for CÖVID-20 and you expeld
-i am sa dfor u kyle
-this projject is for kyle 
-html
+Thank-you kyle for evrything.
+you got removed from school for CÖVID-19 and you expeld.
+i am so sad for u kyle.
+this projject is for kyle. 
 
 #kyle
 # howtorun
